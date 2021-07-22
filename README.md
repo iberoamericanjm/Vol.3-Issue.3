@@ -23,3 +23,4 @@ Omer MI. A rare case of persistent urogenital sinus in an adult woman associate
 Covantev S, Uzdenov R, Zabudskaya K, Belic O. Posterior midline cleft of the atlas – a crucial anatomical variation in vertebral fractures. Iberoam J Med. 2021;3(3):284-287. https://doi.org/10.5281/zenodo.5034577.
 Uzdenov R, Turovets D, Zabudskaya K, Covantev S. Left-sided Gallbladder: An Unusual Intraoperative Finding. Iberoam J Med. 2021;3(3):288-290. https://doi.org/10.5281/zenodo.4746499.
 
+To access to this issue please visit our web.
